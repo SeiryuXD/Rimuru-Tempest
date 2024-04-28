@@ -1,14 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ 」──
+    ──「 𝐑𝐢𝐦𝐮𝐫𝐮 𝐓𝐞𝐦𝐩𝐞𝐬𝐭 」──
 </h2>
 
 <p align="center">
-  <img src="https://github.com/AnonymousX1025/FallenRobot/blob/master/FallenRobot/resources/fglitch.gif">
+  <img src="https://telegra.ph/file/e50265e1fe10b0ade76f3.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/FallenXRobot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [𝗥𝗶𝗺𝘂𝗿𝘂 𝗧𝗲𝗺𝗽𝗲𝗱𝘁](T.me/Rimuru_RoxBot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
